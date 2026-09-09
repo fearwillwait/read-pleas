@@ -8,7 +8,7 @@ she/they/it please, but i prefer they/it
 
 minor, 18+ please dni
 
-fandoms :: deltarune/undertale, homestuck, waiting game (my bsfs oc lore), project hail mary, scott pilgrim, Stardew valley
+fandoms :: deltarune/undertale, homestuck, waiting game (my bsfs oc lore), sleep deprived (+banana channel), project hail mary, scott pilgrim, stardew valley
 
 music :: twenty one pilots, toby fox, fall out boy, sleeping with sirens, my chemical romance, say anything (FUCK max bemis), will wood, cavetown, lemon demon, holes in socks, mc chris, bo burnham, neutral milk hotel, destroy boys, paramore, green day, boygenius, car seat headrest
 
